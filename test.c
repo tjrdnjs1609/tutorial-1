@@ -1,2 +1,2 @@
 8@testing
-seokworking1609@gmail.com
+seokworking1609@naver.com
