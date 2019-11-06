@@ -1,1 +1,1 @@
-eidited by seokwon
+EDITED BY SEOKWON
